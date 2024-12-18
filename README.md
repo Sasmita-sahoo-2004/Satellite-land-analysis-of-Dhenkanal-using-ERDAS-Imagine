@@ -1,0 +1,1 @@
+# Satellite-land-analysis-of-Dhenkanal-using-ERDAS-Imagine
